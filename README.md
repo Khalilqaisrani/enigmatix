@@ -1,2 +1,2 @@
 # enigmatix and web developer
-asim khan
+asim khan (jogi)
